@@ -1,4 +1,4 @@
-# Is Your Bite Causing Health Problems? A Jacksonville Guide to Bite Correction
+# Is Your Bite Causing Health Problems? A Guide to Bite Correction 
 
 Are you experiencing unexplained headaches, jaw pain, or worn-down teeth? The culprit might be something you rarely think about - your bite alignment. At Northpoint Dental in Jacksonville, we regularly help patients understand and correct bite issues that affect both their oral health and overall well-being.
 
