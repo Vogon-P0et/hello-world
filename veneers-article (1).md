@@ -35,7 +35,6 @@ Modern porcelain veneers typically last 10-15 years with proper care. At Northpo
 - High-quality materials
 - Expert placement
 - Follow-up care
-- Membership program benefits
 
 ## Financing Your Veneers
 
