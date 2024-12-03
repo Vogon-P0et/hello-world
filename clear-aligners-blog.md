@@ -6,9 +6,9 @@ Just like Zillow has become synonymous with online home searching, Invisalign® 
 
 Remember the days when straightening teeth meant visible metal braces? Those days are rapidly becoming history. Clear aligners offer a nearly invisible way to achieve the smile you've always wanted, using advanced 3D technology and custom-fitted transparent trays to gradually shift your teeth into optimal position.
 
-## Beyond the Invisalign® Name: Understanding Your Options
+## Beyond the Invisalign® Name: Clear aligners at Northpoint Dental
 
-While Invisalign® pioneered the clear aligner revolution, today's patients have access to several high-quality aligner systems. Each system offers unique advantages, and our experienced team can help determine which option best suits your specific needs and lifestyle.
+While many people know the Invisalign® brand name, our custom clear aligners represent the latest in orthodontic technology. Crafted by Dandy Labs, a leader in digital dentistry, our aligners are precisely engineered using advanced 3D technology to ensure optimal fit and effectiveness. Each aligner is custom-made for your unique smile, ensuring comfortable wear and predictable results.
 
 ## The Clear Advantages of Modern Aligners
 
@@ -34,11 +34,11 @@ Regular check-ups ensure your treatment stays on track, with each new set of ali
 
 ## Investment in Your Future
 
-When considering clear aligners, remember that you're investing in more than just straight teeth - you're investing in confidence, professional presence, and long-term oral health. Our office offers flexible payment options and will work with your insurance to maximize your benefits.
+When considering clear aligners, remember that you're investing in more than just straight teeth - you're investing in confidence, professional presence, and long-term oral health. Our office offers flexible payment options and will work with your insurance to maximize your benefits, if they cover clear aligners.
 
 ## Ready to Transform Your Smile?
 
 Don't let misaligned teeth hold you back from showing your best smile. Schedule a consultation today to discover if clear aligners are right for you. Our experienced team will guide you through every step of your journey to a more confident smile.
 
-Contact Northpoint Dental today at [PHONE] to schedule your clear aligner consultation, or book online through our website. Your perfect smile is waiting.
+Contact Northpoint Dental today at (904) 439-8300 to schedule your clear aligner consultation, or request an appointment online through our website. Your perfect smile is waiting.
 
